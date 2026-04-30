@@ -92,4 +92,4 @@ wherever this Privacy Policy is made available, with a revised effective date.
 If you have any questions about this Privacy Policy, please contact:
 
 **Chipi & Chapa Corp.**\
-**Email:** chipi.chapa.corp@gmail.com
+**Email:** chipi.chapa.corporation@gmail.com
